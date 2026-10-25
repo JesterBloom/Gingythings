@@ -1,13 +1,23 @@
-<img width="736" height="414" alt="Untitled177_20261024080418" src="https://github.com/user-attachments/assets/339bf3f5-1b73-473b-8753-3e4ace7f4d35" />
+<img width="372" height="211" alt="f1440728cf29f1a96caab54c2f9befe1" src="https://github.com/user-attachments/assets/6500924a-0d62-43fe-b3fb-cb41588e2673" />
 
-OMG I FIGURED IT OUT. I THINK? I'M SO HAPPY OMG OMFOMFOKG😍😍😍!!! ✌️✌️
+𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟 𖧁𝒞 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
-Anywho. Hi my name is Jesty or Toby as my friends call me! I'm 4teen, I'm taken by a very lovely person named Juu 💜 I love making friends and all but I am awkward and at times I can be weird with my jokes. Please don't take my jokes to heart and just whisper me if u didn't like it😅...I apologize for whenever I do make jokes U arent comfortable with tho!
+𓊆  ➕ 𓊇    multifandms ..        ｡   🐇 
+𐂯           𓊆ྀི  jester/jesterself   𓉸    ༝ 
 
-OK that's all, love u oofms and remember to drink water. (I don't even do that myself🤣✌️)
+⑅     ︵    Doll/Dollself !!   𓏵   
+     ໒꒰   ྀི𓈒 ◞   ೃ ´𓏼 ꒱ 
 
-<img width="736" height="414" alt="Untitled177_20261024080543" src="https://github.com/user-attachments/assets/333a4163-aa2c-4d08-a97c-c76b753f4fa6" />
+    
 
-Also, this might be my fav gift I've made by far. More will probably be added to the fav skin(s) list.
+𓉸ྀི    ｡    please     dont        involve me in any previous drama. Thank you. 
 
-<img width="516" height="648" alt="pony-town-Making gift (attempting)-stand-padded-12x" src="https://github.com/user-attachments/assets/0452fff5-fcdf-4366-bfe5-58e99c76941f" />
+
+
+     ( །' ✚  o𓏼 )   ❕ ❔   🍶 thank     u     for     reading 
+
+
+𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏
+
+
+<img width="2048" height="2048" alt="Untitled179_20261025173846" src="https://github.com/user-attachments/assets/329c4d50-fd09-4171-a4b0-de949398bca4" />
