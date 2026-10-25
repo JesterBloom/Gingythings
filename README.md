@@ -13,8 +13,7 @@
 𓉸ྀི    ｡    please     dont        involve me in any previous drama. Thank you. 
 
 
-
-     ( །' ✚  o𓏼 )   ❕ ❔   🍶 thank     u     for     reading 
+ །' ✚  o𓏼    ❕ ❔   🍶 thank     u     for     reading 
 
 
 𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏𓏏
